@@ -1,78 +1,59 @@
-aborto
-amador
-aranha
-ariano
 badalhoca
 badalhoco
 balalao
 bastardo
 bater punheta
-bb
 bicha
+bichada
+bichadas
+bilau
 biscate
-bissexual
 boceta
 boob
 bosta
-braulio de borracha
 bumbum
-burro
 cabrao
 cabrão
 caceta
 cacete
+caga
 cagada
 cagar
-camisinha
+cagão
+cala a boca
 caralho
-cerveja
 chochota
-chupa
-chupar
-clitoris
-cocaína
-coito
 colhoes
-comer
 cona
-consolo
 corno
 cu
+cuzão
 dar o rabo
 desgraçado
+desgraçados
 dum raio
-escroto
 esporra
 fdp
-fecal
 filho da puta
 foda
 foda-se
 foder
+fodida
 fodido
-frango assado
+fuck
 fuder
 fudeu
-gostosas
-gostoso
+fudida
 gozando
 gozar
 gozei
 gozo
 grelho
-heroína
-heterosexual
-homem gay
 homoerótico
-homosexual
 imbecil
-imbecis
-inferno
 jeba
 lolita
 lésbica
-mama
-maricas
 maricona
 maricão
 merda
@@ -80,17 +61,14 @@ metendo
 meteu
 mongolóide
 mulher
-novinhos
 paneleiro
 passar um cheque
 pau
-pegador
 peidar
-peito
-pelados
-pintamos
-pinto
 pirola
+piru
+porca
+porco
 porra
 porrada
 punheta
@@ -100,27 +78,24 @@ puta que te pariu
 putinho
 puto
 putos
-pênis
-queca
 sacanagem
-saco
+sacanagens
 safada
-sexo
+safadas
+safado
+safados
 tesudo
 tomar no cu
-torneira
 transa
 transar
+transes
 traveco
 travecos
-vadia
-vai tomar no cu
+vagabunda
 vai-te foder
 veado
 velha
 viadagem
 viado
-vibrador
-xana
+viadão
 xochota
-ânus
